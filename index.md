@@ -10,7 +10,10 @@ Due in February!
 
 ![](39113449_2235497473131593_17115242811097088_n.jpg)
 
-#### Currently residing in Iwakuni, Japan
+#### Currently stationed in Iwakuni, Japan
+
+My husband works for the [NAVY](https://www.navy.mil)
+
 
 ![Alt KintaiBridge](fullsizeoutput_1163.jpeg)
 
