@@ -20,5 +20,8 @@ Due in February!
 
 Migrated to California when I was 12. 
 
+![](IMG_5443.JPG)
 
+## Get to know me better!
 
+Click here 
