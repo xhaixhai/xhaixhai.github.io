@@ -12,7 +12,7 @@ Due in February!
 
 #### Currently stationed in Iwakuni, Japan
 
-My husband works for the [NAVY](https://www.navy.mil)
+My husband works for the [UNITED STATES NAVY](https://www.navy.mil)
 
 
 ![Alt KintaiBridge](fullsizeoutput_1163.jpeg)
