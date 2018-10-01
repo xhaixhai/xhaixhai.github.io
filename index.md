@@ -10,5 +10,7 @@ Due in February!
 
 ![](39113449_2235497473131593_17115242811097088_n.jpg)
 
-#### I live in Iwakuni, Japan
+#### Currently residing in Iwakuni, Japan
+
+![Alt KintaiBridge](fullsizeoutput_1163.jpeg)
 
