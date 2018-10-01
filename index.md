@@ -20,7 +20,7 @@ Due in February!
 
 #### Migrated to the United States when I was 12. 
 
-[Oxnard,California](https://visitoxnard.com) is my hometown 
+[Oxnard, California](https://visitoxnard.com) is my hometown 
 
 ![](IMG_5443.JPG)
 
