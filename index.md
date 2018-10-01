@@ -14,3 +14,7 @@ Due in February!
 
 ![Alt KintaiBridge](fullsizeoutput_1163.jpeg)
 
+#### Born in the Philippines
+
+
+
