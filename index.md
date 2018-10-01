@@ -2,7 +2,7 @@
 #### By Xyleen Bislig
 
 
-### All about me
+### *All about me*
 
 We're having a baby! 
 
