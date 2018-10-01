@@ -16,5 +16,7 @@ Due in February!
 
 #### Born in the Philippines
 
+![](GOPR0649.JPG)
+
 
 
