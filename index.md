@@ -24,4 +24,4 @@ Due in February!
 
 ## Get to know me better!
 
-Click here 
+Click here [](https://github.com/xhaixhai/xhaixhai.github.io/blob/master/bio.md)
