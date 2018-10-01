@@ -1,5 +1,5 @@
 # Welcome to my page!
-#### By Xyleen Bislig
+#### *By Xyleen Bislig*
 
 
 ### *All about me*
@@ -18,7 +18,7 @@ Due in February!
 
 ![](GOPR0649.JPG)
 
-Migrated to California when I was 12. 
+#### Migrated to California when I was 12. 
 
 ![](IMG_5443.JPG)
 
