@@ -18,5 +18,7 @@ Due in February!
 
 ![](GOPR0649.JPG)
 
+Migrated to California when I was 12. 
+
 
 
