@@ -12,3 +12,4 @@ We are so excited when we found out we are having our first baby!
 
 ![](/images.png)
 
+[Home](xhaixhai.github.io/index)
