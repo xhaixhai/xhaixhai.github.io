@@ -23,5 +23,4 @@
 
 ---
 
-
-[Home](xhaixhai.github.io)
+[HOME](xhaixhai.github.io/bio)
