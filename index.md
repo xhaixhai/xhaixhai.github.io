@@ -29,4 +29,4 @@ My husband works for the [UNITED STATES NAVY](https://www.navy.mil)
 
 ## Get to know me better!
 
-[Click here](https://github.com/xhaixhai/xhaixhai.github.io/blob/master/bio.md)
+[BIO](xhaixhai.github.io/bio)
