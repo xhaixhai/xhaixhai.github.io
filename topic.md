@@ -1,10 +1,15 @@
 ## *Fun and Interesting facts about me!*
 
-### I love to go snowboarding with my friends.
+---
+
+### Every year my friends and I always hit the slope. Even though I'm not a pro, Snowboarding is still my favorite!!
 
 ![](GOPR0344.JPG)
 
-### I love to travel to new places and my favorite were Canada and Seoul, Korea!
+---
+
+###  I love to travel, I have been to many places around the States, Japan and Philippines but I trully enjoyed my trip to Canada and South Korea! 
+
 
 ![](12928162_1162148887131083_6316922906407364928_n.jpg)
 
@@ -13,5 +18,10 @@
 ![](DSC_0146.JPG)
 
 *Seoul,2018*
+
+> *can't wait to travel more!*
+
+---
+
 
 [Home](xhaixhai.github.io/index)
