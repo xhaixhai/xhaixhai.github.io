@@ -26,7 +26,7 @@ Lastly, my favorite part about Japan is their spring season, this time around yo
 
 #### I was Born in the Philippines
 
-+ Being station in Japan I was able to visit my birth place and see my family and friends who i haven't seen for a long time.
++ Because Japan is close to the Philippines I was able to visit my birth place and see my family and friends who i haven't seen for a long time.
 It was a very emotional feeling! 
 Also, everytime I visit I tend to explore the Island, and my favorite so far was when we went to boracay. 
 It was an amazing experience!
