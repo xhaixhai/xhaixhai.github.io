@@ -2,7 +2,7 @@
 
 #### *By Xyleen Bislig*
 
-# Hello, My name is Xyleen I'm here to share some basic information and fun things about me! 
+### Hello, My name is Xyleen I'm here to share some basic information and fun things about me! 
 
 *YOROSHIKU ONEGAISHIMASU*
 
