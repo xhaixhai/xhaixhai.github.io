@@ -17,7 +17,7 @@
  + My husband and I have been in Iwakuni since 2016 and this is our second duty station.
 He works for [UNITED STATES NAVY](https://www.navy.mil) that gaves us the oppurtunity to live in Japan.  
 So far we have been enjoying our time, We love their food, culture and just exploring the beautiful country. 
-Lastly, my favorite part about Japan is their spring season, this time around you can witness their beautiful sakura flower bloosoming beautifully. 
+Lastly, my favorite part about living here is witnessing their beautiful sakura bloosoming beautifully every Spring. 
 
 
 ![Alt KintaiBridge](fullsizeoutput_1163.jpeg)
