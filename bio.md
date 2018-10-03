@@ -8,6 +8,12 @@ We are so excited when we found out we are having our first baby!
 
 ---
 
+## Boy or Girl?
+
+We find out the gender of the baby next week!! *So excited!*
+
+
+
 ## We can no longer wait!!
 
 ![](/images.png)
