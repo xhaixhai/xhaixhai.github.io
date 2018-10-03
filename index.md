@@ -16,10 +16,14 @@ My husband works for the [UNITED STATES NAVY](https://www.navy.mil)
 
 #### Migrated to the United States when I was 12. 
 
-[Oxnard, California](https://visitoxnard.com) is my hometown 
+[Oxnard, California](https://visitoxnard.com) is my hometown! 
 
 ![](IMG_5443.JPG)
 
-## Get to know me better!
+## *Get to know me better!!*
+
+click on my [Bio](xhaixhai.github.io/Bio)
+
+## *Interesting Facts about me*
 
 [Topic](xhaixhai.github.io/topic)
