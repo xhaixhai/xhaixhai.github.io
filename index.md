@@ -24,21 +24,15 @@ Lastly, my favorite part about living here is witnessing their beautiful sakura 
 
 ---
 
-#### I was Born in the Philippines
+#### I was born in the Philippines
 
 + Because Japan is close to the Philippines I was able to visit my birth place and see my family and friends who i haven't seen for a long time.
 It was a very emotional feeling! 
 Also, everytime I visit I tend to explore the Island, and my favorite so far was when we went to boracay. 
 It was an amazing experience!
 
-
-
-
-
-*the picture below shows no justice how beautiful Boracay is!*
-
-
 ![](GOPR0649.JPG)
+*the picture shows no justice how beautiful Boracay is!*
 
 ---
 
