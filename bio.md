@@ -20,4 +20,4 @@ We find out the gender of the baby next week!! *So excited!*
 
 ![](/images.png)
 
-[Home](xhaixhai.github.io/index)
+[HOME](xhaixhai.github.io/index) 
