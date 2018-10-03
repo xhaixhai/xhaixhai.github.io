@@ -32,7 +32,7 @@ Also, everytime I visit I tend to explore the Island, and my favorite so far was
 It was an amazing experience!
 
 ![](GOPR0649.JPG)
-*the picture shows no justice how beautiful Boracay is!*
+*this picture shows no justice how beautiful Boracay is!*
 
 ---
 
