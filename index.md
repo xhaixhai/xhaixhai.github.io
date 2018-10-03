@@ -5,12 +5,24 @@
 
 #### Currently stationed in Iwakuni, Japan
 
-My husband works for the [UNITED STATES NAVY](https://www.navy.mil)
+My husband and I have been in Iwakuni since 2016 and this is our second duty station.
+He works for [UNITED STATES NAVY](https://www.navy.mil) that gives us the oppurtunity to be here.  
+So far we have been enjoying our time, I love their food, culture and just exploring the beautiful country. 
+Lastly, my favorite part about Japan is their spring season, where you can witness their beautiful sakura flower that can only last a week. 
+
 
 
 ![Alt KintaiBridge](fullsizeoutput_1163.jpeg)
 
-#### Born in the Philippines
+#### I was Born in the Philippines
+
+Being station in Japan I was able to visit my birth place and see my family and friends who i haven't seen for a long time.
+It was a very emotional feeling! 
+Also, everytime I visit I tend to explore the Island, and my favorite so far was when we went to boracay. 
+It was an amazing experience!
+
+*the picture below shows no justice how beautiful Boracay is!*
+
 
 ![](GOPR0649.JPG)
 
