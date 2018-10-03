@@ -22,7 +22,7 @@ My husband works for the [UNITED STATES NAVY](https://www.navy.mil)
 
 ## *Get to know me better!!*
 
-Click here [Bio](xhaixhai.github.io/Bio)
+Click here [Bio](xhaixhai.github.io/bio)
 
 ## *Interesting Facts about me!!*
 
