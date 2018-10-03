@@ -1,8 +1,8 @@
 ### *All about me*
 
-We're having a baby! 
+## We're having our first baby! 
 
-Due in February!
+We are so excited when we found out we are having our first baby!
 
 ![](39113449_2235497473131593_17115242811097088_n.jpg)
 
