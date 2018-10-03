@@ -12,7 +12,9 @@ We are so excited when we found out we are having our first baby!
 
 We find out the gender of the baby next week!! *So excited!*
 
+![](boyorgirl.png)
 
+---
 
 ## We can no longer wait!!
 
