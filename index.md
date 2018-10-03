@@ -1,5 +1,10 @@
 # Welcome to my page!
+
 #### *By Xyleen Bislig*
+
+## Hello, My name is Xyleen I'm here to share some basic information interesting things about me! 
+
+*YOROSHIKU ONEGAISHIMASU*
 
 
 
