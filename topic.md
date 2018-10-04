@@ -23,4 +23,4 @@
 
 ---
 
-[HOME](xhaixhai.github.io)
+[HOME](xhaixhai.github.io/index)
