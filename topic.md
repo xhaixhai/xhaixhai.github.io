@@ -2,7 +2,7 @@
 
 
 
-#### Every year my friends and I always hit the slope. Even though I'm not a pro, Snowboarding is still my favorite!!
+#### Every winter my friends and I always hit the slope. Even though I'm not a pro, Snowboarding is still my favorite!!
 
 ![](GOPR0344.JPG)
 
